@@ -24,7 +24,7 @@ refer to me as my ponies name!
 
 fictkin , c + h welcome
 
--15 dni !!! i'm 17
+-15 dnf !!! i'm 17 ^^;
 
 <div id="header" align="center">
 
