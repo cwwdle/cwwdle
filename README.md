@@ -22,9 +22,9 @@
 
 refer to me as my ponies name!
 
-fictkin , it / he prns
+fictkin , c + h welcome
 
-c+h is welcome, no dni! idc lol
+-15 dni !!! i'm 17
 
 <div id="header" align="center">
 
