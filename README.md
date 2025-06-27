@@ -1,9 +1,5 @@
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=cwwdle&label=⠀⠀⠀♡⠀⠀⠀&style=plastic&color=be4c4c)
-
-<div id="header" align="center">
-
 ︵︵︵︵︵︵︵︵︵︵
 
 <div id="header" align="center">
